@@ -1,4 +1,4 @@
-#  
+#  Experience ink game like never before with vip ink game Scripts, the #1 Script. Includes auto-farm and no cooldown for unbeatable performance.
 
 
 
